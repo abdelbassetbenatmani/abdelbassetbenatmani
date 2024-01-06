@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **React,NextJs,Nodejs,Javascript**
 
-- 📄 Know about my experiences [https://www.mediafire.com/file/j6vcd4oz1vq7cv0/Abdelbasset_Benatmani_CV.pdf/file](https://www.mediafire.com/file/j6vcd4oz1vq7cv0/Abdelbasset_Benatmani_CV.pdf/file)
+- 📄 Know about my experiences [Download my CV](https://shorturl.at/pGP69)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
